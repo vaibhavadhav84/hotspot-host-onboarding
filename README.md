@@ -102,7 +102,7 @@ Attach a short screen recording showcasing:
 
 ##  Developed By
 **Vaibhav Adhav**  
-Email: vaibhavadhav84@gmail.com  
+Email: vaibhavadhav98@gmail.com  
 LinkedIn: [linkedin.com/in/vaibhavadhav84](https://linkedin.com/in/vaibhavadhav84)
 
 ---
